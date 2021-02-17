@@ -1,4 +1,4 @@
-Credits:CB2018#9559
+Credits: CB2018#9559
 
 
 Desert RolePlay: https://discord.gg/BP8BzQaYVh
